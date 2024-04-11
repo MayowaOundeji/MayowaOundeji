@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MayowaOundeji. I was born and raised in Lagos, and I LOVE DESIGNING 🖌️💻
+- 👋 Hi, I’m @MayowaOgundeji. I was born and raised in Lagos, and I LOVE DESIGNING 🖌️💻
 - 👀 I’m interested in arts, tech, fashion, finance, movies, games and books 
 - 🌱 I’m currently learning Growth Design, Framer, Figma, Adobe & more.
 - 💞️ I’m looking to collaborate on amazing projects and tackle on wicked problems ...
